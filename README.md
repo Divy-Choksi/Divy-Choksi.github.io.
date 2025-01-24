@@ -31,6 +31,3 @@ This repository showcases a collection of my video editing projects, demonstrati
 
 * Divychoksi19@gmail.com
 * www.linkedin.com/in/divy-choksi-08a14a281
-
-
-**"Looking for a video editor who can collaborate seamlessly and bring your vision to life? I'm Divy, and I specialize in creating engaging and impactful videos. Let's work together to tell your story."**
